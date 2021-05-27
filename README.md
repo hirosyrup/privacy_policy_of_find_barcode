@@ -1,0 +1,1 @@
+# privacy_policy_of_find_barcode
